@@ -1,2 +1,2 @@
 # wedding-website
-Very bad website for our wedding
+Very bad website for my wedding
